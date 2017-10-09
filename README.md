@@ -6,3 +6,7 @@ The popular and upcoming game Middle Earth: Shadow of War, may be a game you nee
 The weird thing is, on PS4, Shadow of War is 61.27. The solution to saving your PC money is to opt-out of the 4K content used in the game, but only after you have started downloading it. The new GB count is around 65 GB, but, it still saves your storage.
 
 In short, people don't really now why Middle Earth: Shadow of War is so big, but I have one idea. Maybe all those orcs fled the LEGO world and joined in. Watch for the orcs!
+
+by Samir Khattak
+
+# Daily News - October 10 - 
