@@ -1,5 +1,5 @@
-# Gaming-News
-A repository about weekly gaming news, like Kotaku or Polygon, but better.
+# Gaming News
+A repository about weekly gaming news, like Kotaku or Polygon, but better. This is a public project, so anyone can work on it. I am excited for this project to grow throughout GitHub and make it more popular.
 # Daily News - October 9 - Shadow of War has a PC Game, which has a download of nearly 100GB
 The popular and upcoming game Middle Earth: Shadow of War, may be a game you need a additional hard drive for. It has a whopping 97.7 GB full of gaming, so you may want to buy a hard drive or extra storage before you buy.
 
