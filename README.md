@@ -9,4 +9,5 @@ In short, people don't really now why Middle Earth: Shadow of War is so big, but
 
 by Samir Khattak
 
-# Daily News - October 10 - 
+# Daily News - October 11 - Update
+Hey guys, I'm sorry I missed the day yesterday. I am a student and needed to work on some things and forgot about Gaming News. I will still make a post tommorrow, and I promise I won't miss it
