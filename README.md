@@ -11,3 +11,10 @@ by Samir Khattak
 
 # Daily News - October 11 - Update
 Hey guys, I'm sorry I missed the day yesterday. I am a student and needed to work on some things and forgot about Gaming News. I will still make a post tommorrow, and I promise I won't miss it.
+
+# Daily News Becomes Weekly - October 14
+Hello GitHub users.
+I'm am terribly sorry that I have missed the past 3 days. My life right now is very busy, and I just can't work on this project right now.
+So I didn't think I would say this, but Gaming News is no longer Daily; it has now become Weekly Gaming News.
+
+by Samir Khattak
