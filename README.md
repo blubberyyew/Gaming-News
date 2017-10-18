@@ -17,7 +17,7 @@ by Samir Khattak
 
 # Daily News Becomes Weekly - October 14
 Hello GitHub users.
-I'm am terribly sorry that I have missed the past 3 days. My life right now is very busy, and I just can't work on this project right now.
+I'm am terribly sorry that I have missed the past 3 days. I'm very busy right now, and I just can't work on this project right now.
 So I didn't think I would say this, but Gaming News is no longer Daily; it has now become Weekly Gaming News.
 
 by Samir Khattak
