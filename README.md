@@ -21,3 +21,14 @@ I'm am terribly sorry that I have missed the past 3 days. I'm very busy right no
 So I didn't think I would say this, but Gaming News is no longer Daily; it has now become Weekly Gaming News.
 
 by Samir Khattak
+
+# Weekly News - October 18 - Fortnite: Battle Royale is blowing up!
+Fortnite: Battle Royale is a FTP (free to play) battle royale style game, much like PUBG. This game has gotten a lot of love over the past couple of weeks, and I am here to cover it all.
+
+First, the game is free to play for the whole year. Epic Games has announced a price tag in 2018, so you have much time to play it for free. Second, the game is on 4 platforms; Xbox One, PS4, PC, and Mac. This enables a lot more users to be attracted to the game.
+
+I play this game on Xbox, and it is so fun. The games are really fast, and take maybe up to 20-25 minutes max. PUBG has longer matches, and Fortnite also has about a 5 minute wait time for queing up for games.
+
+In short, I really like this game, and you can purchase it [here, for free](https://www.epicgames.com/fortnite/en-US/buy-now/battle-royale). The game is really addicting and has tons of players. I hope you enjoy the game for yourself, or already have it and enjoy it as much as I do!
+
+by Samir Khattak
