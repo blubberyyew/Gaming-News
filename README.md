@@ -32,3 +32,16 @@ I play this game on Xbox, and it is so fun. The games are really fast, and take 
 In short, I really like this game, and you can purchase it [here, for free](https://www.epicgames.com/fortnite/en-US/buy-now/battle-royale). The game is really addicting and has tons of players. I hope you enjoy the game for yourself, or already have it and enjoy it as much as I do!
 
 by Samir Khattak
+
+# Weekly News - October 29 - Super Mario Odyssey is awesome!
+Nintendo has hyped up their entire community by releasing the new Super Mario Odyssey game for the Nintendo Switch. This game features the new companion for Mario, Cappy!
+
+Cappy is the hat that Mario wears (hence the name), and he can change Mario into anything he touches! The game features T-Rexs', Cheep Cheep's, Hammer Brothers, Bowser, and many other recurring enemies from previous Mario games!
+
+Many people reference Odyssey to the N64 classic Super Mario 64. If you did not know, this was the first 3D and open-world Mario game for Nintendo.
+
+Since this game was hyped up so much, consumers have the choice to buy many accessories, like new amiibos! To enjoy the marriage of Bowser and Peach, Nintendo has released Mario Bowser and Peach anniversary amiibos, and, I think, that personally, they look very cool and are nice to look at. Other accessories include a carrying case, a wired controller, and much more to go with the game.
+
+In short, this game looks incredibley awesome, and you can purchase it [here](https://www.amazon.com/Super-Mario-Odyssey-Nintendo-Switch/dp/B01MY7GHKJ/ref=sr_1_2?s=videogames&ie=UTF8&qid=1509315137&sr=1-2&keywords=super+mario+odyssey) for $59.99 on Amazon. I really hope you buy this game, and I'll see you next time on Weekly Gaming News!
+
+by Samir Khattak
